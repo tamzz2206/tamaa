@@ -1,2 +1,0 @@
-# tamaa
-buat bela arlista
